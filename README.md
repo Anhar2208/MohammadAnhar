@@ -1,2 +1,0 @@
-# MohammadAnhar
-TekWebD
